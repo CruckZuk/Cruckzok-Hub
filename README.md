@@ -1,2 +1,2 @@
 # Cruckzok-Hub
-easy poise emae
+BRM-5 Mobile and PC vershion... And other soon!
